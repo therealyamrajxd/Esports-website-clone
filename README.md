@@ -1,4 +1,4 @@
-# 💥 Gasky AI Website 💥
+# 💥 Esports AI Website 💥
 
 Yo yo, welcome to the Gasky Zone — the wildest AI corner of the internet where logic took a vacation and chaos runs the show 😎🔥
 
